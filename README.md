@@ -51,7 +51,7 @@
 
         《红楼梦脂评汇校本》 繁体竖排精装本
 
-        ![image](https://user-images.githubusercontent.com/1026479/147814857-7bf1941c-2402-4f75-84ca-aaf31dd7edc2.png)
+![image](https://user-images.githubusercontent.com/1026479/147814857-7bf1941c-2402-4f75-84ca-aaf31dd7edc2.png)
 
         https://detail.tmall.com/item.htm?id=573544892033
 
@@ -60,12 +60,12 @@
 
         《红楼梦脂评汇校本》 简体横排瓶装本
 
-        ![image](https://user-images.githubusercontent.com/1026479/147816372-eb2c4403-d9cd-4dac-8381-b9c3d3bbf63c.png)
+![image](https://user-images.githubusercontent.com/1026479/147816372-eb2c4403-d9cd-4dac-8381-b9c3d3bbf63c.png)
 
         https://item.jd.com/13005556.html
 
         《红楼梦脂评汇校本》 简体横排精装本
 
-        ![image](https://user-images.githubusercontent.com/1026479/147816327-1d8c4367-6f11-49b3-8a11-8ab5412415b1.png)
+![image](https://user-images.githubusercontent.com/1026479/147816327-1d8c4367-6f11-49b3-8a11-8ab5412415b1.png)
 
         https://item.jd.com/13295374.html
