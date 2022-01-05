@@ -77,7 +77,7 @@
 
 ### 浙江古籍出版社 出版
 
-        《红楼梦脂评汇校本》 繁体竖排精装本
+        《红楼梦脂评汇校本》繁体竖排精装本
 
 ![image](https://user-images.githubusercontent.com/1026479/147814857-7bf1941c-2402-4f75-84ca-aaf31dd7edc2.png)
 
@@ -86,14 +86,25 @@
 
 ### 清华大学出版社 出版
 
-        《红楼梦脂评汇校本》 简体横排瓶装本
+        《红楼梦脂评汇校本》简体横排瓶装本
 
 ![image](https://user-images.githubusercontent.com/1026479/147816372-eb2c4403-d9cd-4dac-8381-b9c3d3bbf63c.png)
 
         https://item.jd.com/13005556.html
 
-        《红楼梦脂评汇校本》 简体横排精装本
+        《红楼梦脂评汇校本》简体横排精装本
 
 ![image](https://user-images.githubusercontent.com/1026479/147816327-1d8c4367-6f11-49b3-8a11-8ab5412415b1.png)
 
         https://item.jd.com/13295374.html
+        
+### 当代世界出版社 出版
+
+        《癸酉本石头记 后28回》简体横排瓶装本
+        
+        网友戏谑之为，为仿古伪作
+
+![image](https://user-images.githubusercontent.com/1026479/148144542-5184298e-2bf1-4471-a985-2ca5b14312dd.png)
+
+
+
